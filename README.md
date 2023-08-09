@@ -4,6 +4,9 @@ If y'all ended up over here, that means you are interested in learning more abou
 Check out my resume!
 Feel free to email, text or call me !!
 
+Email: janattsite@gmail.com
+
+
 Links (found in my resume):
 - LinkedIn: https://www.linkedin.com/in/janatahan/
 - Personal Website: https://janatahan.com/
